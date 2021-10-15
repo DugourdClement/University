@@ -65,3 +65,5 @@ __La cendre des feuilles__ peut servir d'antiseptique.
 Une goutte de l'__excrétion recueillie à la base de la plante__ peut soigner les maux de dents.
 
 __Les feuilles et le pollen__ sont diurétique.
+
+[![Vidéo explicative de ce que sont les quenouilles au Canada](http://img.youtube.com/vi/YOUTUBE_VIDEO_ID_HERE/0.jpg)](https://www.youtube.com/watch?v=yw35BYhKVoo)
